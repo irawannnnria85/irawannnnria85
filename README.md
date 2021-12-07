@@ -1,11 +1,11 @@
 https://bayarpedia.blogspot.com  
+https://bebaasbayarr.blogspot.com  
 https://beritanasional6.blogspot.com  
 https://beritanesiya.blogspot.com  
 https://bikinmasakan.blogspot.com  
 https://carijandaonline.blogspot.com  
 https://hasdukmerahputih.blogspot.com  
 https://indonesiwa.blogspot.com  
-https://www.indonesiya.com  
 https://jandacantikkaya.blogspot.com  
 https://jandamudaseksi.blogspot.com  
 https://jutaanjanda.blogspot.com  
